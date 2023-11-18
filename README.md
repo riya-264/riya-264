@@ -1,4 +1,4 @@
 ### Hi there 👋
 <br>
 
-author-  Riya Chaturvedi
+author-  Riya (SGSITS)
